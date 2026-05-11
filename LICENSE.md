@@ -1,4 +1,4 @@
-
+Enhance Todoist for macOS with elite Todoist for macOS Addon | cloud backup + offline access, the #1 addon. Includes cloud backup and offline access for a smoother experience.
 
 
 
